@@ -9,9 +9,9 @@
 ### **Adress and contacts:**
 
 >_adress: Minsk, Skoriny str, 37_  
-_phone: +375259253263_  
+_phone: +375257253263_  
 _e-mail: igrmironov@gmail.com_  
-_diskword: IgrMironov(@IgrMironov)_  
+_discord: IgrMironov(@IgrMironov)_  
 *** 
 ### **About myself** 
 * #### I may not be as experienced, but I am a person you will want to get to know and work with.  
