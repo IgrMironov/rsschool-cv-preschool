@@ -1,2 +1,2 @@
-https://igrmironov.github.io/rsschool-cv/cv
-https://igrmironov.github.io/rsschool-cv/
+https://igrmironov.github.io/rsschool-cv-preschool/cv
+https://igrmironov.github.io/rsschool-cv-preschool/
